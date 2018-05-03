@@ -1,2 +1,0 @@
-# wendang
-# wendang
